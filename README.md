@@ -11,6 +11,7 @@
 <p align="center">
   <p align="center">
 <img width="523" height="789" alt="Image" src="https://github.com/user-attachments/assets/ebcf5b19-b4cc-423c-b51e-1180ebd9e8cd" />
-
+<p align="center">
+I made this wallpaper or whatever myself, you can use it if you want
 
 
