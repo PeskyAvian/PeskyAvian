@@ -1,6 +1,6 @@
 
 <p align="center">
-<img src="https://media.tenor.com/5K7GJiDJ8lUAAAAM/branzy-branzycraft.gif" width="100%" />
+<img src="https://media.tenor.com/5K7GJiDJ8lUAAAAM/branzy-branzycraft.gif" width="55%" />
 <p align="center">
   Just a happy guy
   <p align="center">
