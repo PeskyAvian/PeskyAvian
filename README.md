@@ -6,7 +6,7 @@
   <p align="center">
   I want to say im Branzys number 1 fan but theres probably someone with a shrine of him-
 <p align="center">
-  In my eyes, Im his number 1 fan
+  In my eyes, Im his number 1 fan.
   
 <p align="center">
   <p align="center">
